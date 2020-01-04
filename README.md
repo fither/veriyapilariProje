@@ -1,0 +1,6 @@
+# veriyapilariProje
+
+Onur_YALÇIN_172113076
+Metehan_CEYHAN_172113040
+
+VeriYapilarıProje
